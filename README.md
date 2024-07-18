@@ -1,0 +1,1 @@
+Welcome to Flavora, the ultimate food delivery app that brings your favorite meals right to your doorstep. Whether you're craving pizza, sushi, burgers, or healthy salads, Flavora connects you with the best local restaurants and ensures a seamless and delightful food ordering experience.
